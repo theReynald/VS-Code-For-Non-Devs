@@ -80,4 +80,3 @@ And guides us gently on our dreaming way.
 
 **END SCENE**
 
-*🎭 Featuring the eternal relevance of lunar humor 🌙*
